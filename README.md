@@ -17,7 +17,7 @@
 ---
 
 ## 📫 Connect with me
-- 📧 Email: abhishek.kumar@example.com
+- 📧 Email: abhishekkumar6798.ak@gmail.com
 - 💼 LinkedIn: [linkedin.com/in/abhishekkumar6798](https://linkedin.com/in/abhishekkumar6798)
 
 ---
